@@ -9,3 +9,14 @@ Teacher replied no we should always focus on our things and our winning only , n
 Than the student understood and gived a example of instead of having a big slice of pizza , I can havae as many slices as i Want ? Teacher replied yes.
 Than the student asked about the another rule . and that was why i feel sad when other is winning and i'm not and than the teacher asnwered it's because we all are born with different situation and everybody around us . When we see other people having a good salary we doubt ourself will i have one or not ?
 when we see others people happy in relationship we start thinking about ourself that will i live alone my whole life and what we need to focus is everybody has different case different scenerio in there life what worked for them might not work for ourself. So instead of looking out others we should always focus on our thing clearly and more properly so we can do something which will make us feel good
+
+The worst use of your time is comparing yourself to others.
+
+Now let's move to next question . 
+How can you improve your communication skills .
+Most of us face problems like getting nervous , anxious and so many other feeling while communicating your ideas into words and what you can do to improve your verbal communication?
+So to solve this problem initially we need to check like are we able to express what we are actually thing in our mind if not verbally than obviously you need to start writting down your thoughts into a words in notebook or anything. Once you listen this thing you will be surely like what how can i write my thoughts into words i'm not a writter . 
+but here is what you need to understand writting is the slowest form of expression that we  have as humans and when we try to speak our thoughts without any preparation we end up mixing and removing things from our verbal speech or anything you are doing . When we write we are training our brain to select the most important thought out of all that is inside it and this process help us to keep pace with or our thoughts .
+Okay hoprfully you understood this now may be yo have questions like . Time we need to dedicate , when and what should i write ?
+so here's your answer write everyday , start with a single page don't go beyound that and wwrite about anything which comes to your mind and the only thing is to notice are you able to write what you were actually thinking .
+This is how you can improve your verbal communication skills
