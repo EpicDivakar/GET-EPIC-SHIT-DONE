@@ -25,3 +25,16 @@ This is how you can improve your verbal communication skills
 
 Writing daily is not just for writers.
 It is for communication who wish to express themself better.
+
+#How do i manage my time ?
+
+We have a question in our minds that how can we manage our time most of us ended up buying course , watching youtube creators talking about managing time . But the truth to manage time you need to understand your relationship with time .Mostly we track out time by to-do list where we need to do , where we only knwo about what to do through out the day and the time we spend doing those thing is only 20 - 30 % of time of your total day. Most of us feels we have done alot of work for the day but the truth is you barely spends time on it and wasted most of your time on things like watching movie , cooking food , going outside with friends and so on . 
+Do you know what were you doing on any date and that time and how much time you spend on it . so the answer will be no beacause we actually don't know where we are spending most of our time . So what you need to do is measuring every single thing that you do in your day (for atleast 20 days ) , right from the time you wake up to you go to sleep 
+a) What did you do what you did?
+b) How did it make it feel at the end of the day? 
+but during this time here's comes a question in mind that how will i do it this sounds tough . You drive a car today without any worries just beacuse you have years of habiut doing the same thing since last so many years and that's how habits works you 'll have so many question in your mind initially but what you need to do is doing things consitently and setting a priority for you work . So there can be four types of work:
+a) Not urgent and not important 
+b) important but not urgent 
+c)urgent but not important
+d)urgent and important
+and ask a question to yourself which combination makes you more productive through out the day 
